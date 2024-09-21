@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩‍💻 A programmer who enjoys gaming and anime in my free time.<br>🎮 Working on challenging projects.<br>🤝 Eager to collaborate on innovations.<br>📚 Seeking help to enhance knowledge.<br>🧠 Constantly learning.<br>💡 Ask me about technology, games and animes.<br>🔬 Enthusiast of science and fiction.
+👩‍💻 A programmer who enjoys gaming and anime in my free time.<br>🌱 Driven by a constant desire to learn and grow.<br> 🎮 Working on challenging projects.<br>🤝 Eager to collaborate on innovations.<br>📚 Seeking help to enhance knowledge.<br>🧠 Constantly learning.<br>💡 Ask me about technology, games and animes.<br>🔬 Enthusiast of science and fiction.
 
 
 ## 🌐 Socials:
